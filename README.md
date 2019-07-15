@@ -10,4 +10,4 @@ People go through a lot during difficult times.
 This blog is a collection of such adverse conditions observed in common people.
 
 Give a try in your free time.
-I assure you every story would melt and churn something inn you.
+I assure you every story would melt and churn something in you.
